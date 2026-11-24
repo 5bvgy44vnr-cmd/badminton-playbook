@@ -1,4 +1,4 @@
-# The Badminton Playbook
+# The Badminton Playbook: 8 Lessons from the Court to the Corner Office
 
 An 8-Learning series on what the badminton court teaches about corporate life, published as a single web page.
 
